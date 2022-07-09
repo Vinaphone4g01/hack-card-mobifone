@@ -1,2 +1,4 @@
 # hack-card-mobifone
 Bật mí cách hack Card điện thoại MobiFone miễn phí
+<p style="text-align: justify;">Hé lộ cách <a href="https://3gmobifones.com/cach-hack-card-dien-thoai-mobifone"><strong>hack Card điện thoại miễn phí MobiFone</strong></a> nhận số tiền khủng dùng để liên lạc nội mạng, ngoại mạng, đăng ký các gói khuyến mãi Mobi,... Thực tế bạn có thể thực hiện thành công hay không? Chắc chắn người dùng muốn biết cách thực như thế nào nhằm tăng số dư điện thoại nhanh chóng mà không cần bỏ ra bất cứ chi phí nào.</p>
+<p style="text-align: justify;">Nếu bạn cũng đang tò mò muốn biết cách hack thẻ cào như thế nào thì hãy cùng <a href="http://3gmobifones.com" target="_blank" rel="noopener">3gmobifones.com</a> tìm hiểu chi tiết trong nội dung bài viết sau. Và đừng quên chia sẻ thông tin để mọi người cùng biết nhé!</p>
